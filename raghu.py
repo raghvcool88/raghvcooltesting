@@ -1,3 +1,2 @@
 Raghu
-my my
 great
